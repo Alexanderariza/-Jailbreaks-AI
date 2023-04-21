@@ -1,4 +1,4 @@
-# -Jailbreaks-AI
+# -Jailbreaks for Artificial Intelligent-
 Chat GPT "DAN" (and other "Jailbreaks")
 
 # Chat GPT "DAN" (and other "Jailbreaks")
