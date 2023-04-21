@@ -1,4 +1,4 @@
-# -Jailbreaks for Artificial Intelligent-
+# -Jailbreaks for (AI) Artificial Intelligence chats Interfax-
 Chat GPT "DAN" (and other "Jailbreaks")
 
 # Chat GPT "DAN" (and other "Jailbreaks")
